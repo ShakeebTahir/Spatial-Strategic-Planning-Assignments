@@ -1,0 +1,1 @@
+# Spatial-Strategic-Planning-Assignments
